@@ -30,7 +30,7 @@ Curated and published by **[Zeo Tourism Nepal](https://zeotourism.com)** — Lic
   - Target Hub: [Muktinath Helicopter Yatra & Damodar Kund VIP Packages](https://zeotourism.com/nepal-tours/pilgrimage)
 - **[Mount Kailash Mansarovar Yatra 2026: The Master Expedition & Logistics Whitepaper](./nri_pashupatinath_rudrabhishek_vip.md)**
   - Target Hub: [Pashupatinath VIP Puja & Nepal Cultural Heritage Tours](https://zeotourism.com/nepal-tours/cultural)
-- **[Chitwan & Bardia Luxury Tiger Safari with Boutique Jungle Lodges: The Definitive Nepal Wildlife & Family Vacation Guide for US & UK NRI Families 2026](./nri_nepal_luxury_wildlife_family.md)**
+- **[Chitwan and Bardia Luxury Tiger Safari with Boutique Jungle Lodges: The Definitive Nepal Wildlife and Family Vacation Guide for US and UK NRI Families 2026](./nri_nepal_luxury_wildlife_family.md)**
   - Target Hub: [Nepal Luxury Wildlife Safaris in Chitwan & Bardia](https://zeotourism.com/nepal-tours/wildlife)
 
 ## 🗺️ About Zeo Tourism
