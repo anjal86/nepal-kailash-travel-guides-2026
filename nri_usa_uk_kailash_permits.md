@@ -1,11 +1,11 @@
 # Mount Kailash Mansarovar Yatra 2026: The Master Expedition & Logistics Whitepaper
 
-> **Official Research Dossier** published by [Zeo Tourism Travel Advisory](https://zeotourism.com) *(Baluwatar-4, Kathmandu, Nepal)*
+> **Official Research Dossier** published by [Zeo Tourism NRI Kailash Yatra Operations](https://zeotourism.com/kailash-mansarovar) *(Baluwatar-4, Kathmandu, Nepal)*
 
 ## Executive Summary
 A definitive planning dossier detailing logistical execution, route comparisons, altitude physiology, permit regulations, and financial cost architectures for Himalayan and Tibetan pilgrimages.
 
-For live departure slots, transparent pricing and itinerary customizations, review the official resource: [Nepal Visa on Arrival & Tourist Entry Regulations](https://zeotourism.com/nepal-visa-guide).
+For live departure slots, transparent pricing and itinerary customizations, review the official resource: [NRI Kailash Mansarovar Yatra Visa & VIP Permit Guide](https://zeotourism.com/kailash-yatra-nri-guide).
 
 ### Key Regulatory & Route Takeaways
 - Permits must be initiated at least 60-90 days prior to departure through licensed Kathmandu operators.
@@ -21,7 +21,7 @@ Undertaking the sacred Parikrama around Mount Kailash (6,638m) and ritual purifi
 
 Selecting the optimal transit corridor fundamentally influences physical safety and success rates. The Overland route via Rasuwagadhi/Kyirong provides the safest altitude gradient, allowing gradual acclimatization at Syabrubesi (1,460m) and Kyirong (2,700m) before ascending to the Tibetan Plateau (4,500m+).
 
-*Detailed regional protocols and gear guidelines are maintained in the official [Nepal Travel Packing Checklist & Gear Guide](https://zeotourism.com/nepal-packing-guide).*
+*Detailed regional protocols and gear guidelines are maintained in the official [Kailash Mansarovar 2026 All-Inclusive Cost for NRIs](https://zeotourism.com/kailash-mansarovar-yatra-cost).*
 
 ## 3. Comprehensive Cost & Budgeting Architecture
 
